@@ -1,16 +1,85 @@
-## Hi there 👋
+╭──────────────────────────────────╮
+│  🌙 Casuki Adoshino — README.md   │
+╰──────────────────────────────────╯
 
-<!--
-**Kassi-Kunz/Kassi-kunz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+— ~ ; welcome to my page! 🫧❕ (≧◡≦) ♡
+💿🐾 !! —— enjoy your time here !
 
-Here are some ideas to get you started:
+|==================================|
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📌 ABOUT ME (｡•̀ᴗ-)✧
+— Name ; Casuki Adoshino
+— Nicknames ; Cas / Suki / Casi / Kassie
+— Status ; Minor (・ω・)ノ
+— Focus ; Bot creator (MHA focused
+
+|==================================|
+
+🎨 INTERESTS 
+— 📖 Reading 
+— 🎨 Drawing ✏️ 
+— 🎮 Playing video games 🎧 
+
+|==================================|
+
+🔗 SOCIAL LINKS 
+— 💬 Discord ; Kassi_kunz (copy + add!) 
+  https://discord.com/users/@me
+
+— 🎮 Roblox ; Nienna05 (display : Casuki) 
+  https://www.roblox.com/users/profile?username=Nienna05
+
+— ▶️ YouTube ; Kasii-r6x 
+  https://www.youtube.com/@Kasii-r6x
+
+— 🐎 Pony Town ; Casuki || Cas || Suki 
+  https://pony.town
+
+— 🤖 Character.AI ; Casuki_adoshino 
+  https://character.ai/profile/Casuki_adoshino
+
+|==================================|
+
+📂 PROJECTS / WORK (๑•̀ㅂ•́)و✧
+~—— 📼 Bots I Make
+— My Hero Academia bots 💥
+— Mainly Bakugo, Katsuki
+— Custom/private bots (limited)
+— Codes shared occasionally ✨
+
+|==================================|
+
+⚠️ IMPORTANT NOTICE 
+!! I am a MINOR
+!! IRL name & age are private
+!! Please respect my boundaries (｡•́︿•̀｡)
+
+|==================================|
+
+🩹 BOUNDARIES.md (ಠ_ಠ)
+— ❌ NO SH or SA content
+— ❌ No forced intimacy
+— ❌ No sexual content involving minors
+— ❌ No overboard s3xu@I topics
+— ✔️ Time-skips required when applicable (￣▽￣)ノ
+
+|==================================|
+
+🎨 CREDITS 
+— All bot cover art belongs to the original artists
+— Full credit is always given 🤍
+
+|==================================|
+
+🛠 BOT-MAKING SCHEDULE (๑´ڡ`๑)
+— Mostly weekends
+— Free days only
+— Slow replies possible (lazy but alive 😋)
+
+|==================================|
+
+📬 CONTACT (≧◡≦) ♡
+— DM before requesting
+— Please do NOT repost or reuse this layout (＞﹏＜)
+
+— ~ end of README 🫧💿 
