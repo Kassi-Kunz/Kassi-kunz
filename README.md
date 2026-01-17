@@ -80,6 +80,7 @@
 
 📬 CONTACT (≧◡≦) ♡
 — DM before requesting
-— Please do NOT repost or reuse this layout (＞﹏＜)
+— Please do NOT repost or reuse this layout 
+(＞﹏＜)
 
 — ~ end of README 🫧💿 
